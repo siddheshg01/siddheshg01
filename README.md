@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm **Siddhesh Gaikwad**  
 ### 🚀 AI Enthusiast | Full Stack Developer | Problem Solver  
 
-📫 Email Me 👉 **your-email-here**  
+📫 Email Me 👉 **siddhesh.gaikwad0106@gmail.com**  
 💼 GitHub 👉 **siddheshg01**
 
 <div align="center">
